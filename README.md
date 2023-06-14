@@ -1,2 +1,1 @@
-
-###👋, TA TE TI 
+ TA TE TI 
